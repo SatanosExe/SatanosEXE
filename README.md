@@ -1,4 +1,4 @@
-WORK IN PROFRESS ⚠️ [may be finished in like 2 days idk but it will take time for me to learn ts]
+WORK IN PROGRESS ⚠️ [may be finished in like a few days it depends, but it will take time for me finish ts]
 <p align="center">
 <img src="https://64.media.tumblr.com/345764b00f4a34ccbcc34650ce755377/7d34b03ea4b91782-2d/s2048x3072/1fe2e63846bf96e94c7d6262f002a49421329921.pnj" width="600">
 </p>
