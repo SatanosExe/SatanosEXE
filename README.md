@@ -15,6 +15,7 @@ Art by me!! (reference by Artist on Pinterest!)
 Hi! My name is Frying Pan, though I also go by Satanos!! I am both a trad/Digi Artist and I enjoy spending most of my free time creating art. <3
 My Fictotype is Self explanatory.
 Interests:Art|RewrittenSin(Rewrite x Satanos ᐠ( ᐢ ᵕ ᐢ )ᐟ )|Developing Fictional Characters through Artworks and short stories|
+Afro-Latina
 
 
  ━━━━━ BOUNDARIES: ━━━━━ 
