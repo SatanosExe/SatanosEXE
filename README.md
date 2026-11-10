@@ -18,18 +18,38 @@ Interests:Art|RewrittenSin(Rewrite x Satanos ᐠ( ᐢ ᵕ ᐢ )ᐟ )|Developing 
 
 
  ━━━━━ BOUNDARIES: ━━━━━ 
->No trolling, harassment, or any intentional provocation.
->Please do not cover my characters/skins
->Do not use, repost, trace, edit, or redistribute my artwork without my explicit permission.
+
+No trolling, harassment, or any intentional provocation.
+
+
+Please do not cover my characters/skins
+
+
+Do not use, repost, trace, edit, or redistribute my artwork without my explicit permission.
 (Friends are welcome to ask permission for artwork. permission is not automatically granted, thank you.)
->Please ask before sending me a friend request, I’ve been having problems with people spamming the friend request button and it’s irritating to deal with!!
->Respect my personal identity and boundaries.
->please do not pressure me into interactions I’m uncomfortable with.
->Please don’t be inappropriate if not close with me it’s uncomfortable. •́︿•̀
->Once again thank you!
+
+
+Please ask before sending me a friend request, I’ve been having problems with people spamming the friend request button and it’s irritating to deal with!!
+
+
+Respect my personal identity and boundaries.
+
+
+please do not pressure me into interactions I’m uncomfortable with.
+
+
+Please don’t be inappropriate if not close with me it’s uncomfortable. •́︿•̀
+
+
+━━━━━━━━━━━━━━ 𖤐|Quick Little Reminder|𖤐 ━━━━━━━━━━━━━━━━
+
+
+I’m slow at responding (complicated messages confuse me) so if I don’t respond to your text right away please don’t be mad at me I’m just thinking of what to say. </3
 
 
 Please do talk to me whenever I’m on ponytown I really do enjoy talking! unless I’m busy.
+
+>"Call it madness. I call it existence." 𖤐
 
 
 
